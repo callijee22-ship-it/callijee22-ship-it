@@ -1,1 +1,0 @@
-Character redesign asset archive.

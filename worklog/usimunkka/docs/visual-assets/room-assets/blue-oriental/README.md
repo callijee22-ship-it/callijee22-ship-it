@@ -1,1 +1,0 @@
-Blue oriental room assets

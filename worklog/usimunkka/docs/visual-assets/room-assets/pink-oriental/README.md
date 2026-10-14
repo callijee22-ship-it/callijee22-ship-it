@@ -1,1 +1,0 @@
-Pink oriental room assets

@@ -1,1 +1,0 @@
-Dark oriental room assets
